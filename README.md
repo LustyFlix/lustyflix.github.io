@@ -1,3 +1,3 @@
-## Welcome to🌹LustyFlix🌹
+# 🌹LustyFlix🌹
 
 > Homepage
